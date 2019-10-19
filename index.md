@@ -3,7 +3,7 @@
 Introducing the 8.0" Black Mamba Edition 🐍 🛹 with PowerPop ™ Technology!
 
 
-A 6.875" tail/nose combo make for greater leverage equating to a larger popping force at the point of impact.
+A 6.875" tail/nose combo make for a larger ammount of leverage creating greater popping force at the point of impact.
 
 ### Markdown
 
